@@ -51,5 +51,5 @@
 
 ## 🤝 Conecte-se comigo
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/seu-usuario-aqui)
+- 💼 [LinkedIn](https://www.linkedin.com/in/djavan-caetano-ba9388373/)
 - 📧 djavanpro9@gmail.com 
